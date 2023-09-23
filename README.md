@@ -6,7 +6,7 @@ Aku di sini sedang mencoba hal baru di luar apa yang aku pelajari waktu perkulia
 
 Salam kenal, ya!! <br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](linkedin.com/in/adityahsh)ku ya
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/adityahsh)ku ya
 
 ### Github Statistic
 <p align="left">
